@@ -9,7 +9,4 @@ Kenneth Edward Wells (2025). *Infinite Subtext* — coined and first published S
 ## Original Publications
 - Archive.org: https://archive.org/details/infinite-subtext-kenneth-edward-wells-2025  
 - Medium: https://medium.com/@infinitesubtext/introducing-infinite-subtext-naming-the-inexhaustible-depth-of-meaning-a9be01880ffc  
-- Academia.edu: https://www.academia.edu/143942849/Infinite_Subtext_Kenneth_Edward_Wells_2025 
-
-## Addendum
-- Hypnotherapy Context Expansion (2025): [Read here](https://github.com/infinitesubtext/infinite-subtext/blob/main/Addendum to the Definition of Infinite Subtext (Kenneth Edward Wells, 2025).txt)
+- Academia.edu: https://www.academia.edu/143942849/Infinite_Subtext_Kenneth_Edward_Wells_2025
